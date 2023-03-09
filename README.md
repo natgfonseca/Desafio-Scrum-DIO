@@ -1,1 +1,3 @@
 # Desafio-Scrum-DIO
+link MIRO desafio SCRUM
+https://miro.com/welcomeonboard/cDRmcVFoZGRDMEdtWXI0TVk2NG53TjN6cDZmYlprWUZjMmRaeUt4TWUxNWcyRnJ0QVlnNUF2TUJMZEdxUFdDZnwzNDU4NzY0NTQ4MzE3MDU3NzY1fDI=?share_link_id=424142638967
